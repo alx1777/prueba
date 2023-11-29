@@ -1,1 +1,0 @@
-Texto que se conservara
